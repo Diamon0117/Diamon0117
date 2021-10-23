@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Diamon0117
-- 👀 I’m interested in Proframming Games, Minecraft plugina, Wepsites, and Apps
+- 👀 I’m interested in Proframming Games, Wepsites, Apps, and Minecraft plugins
 - 🌱 I’m currently learning Java Language
 - 📫 You can Reach me on Discord Diamon0117#8966
 - Join My Discord Server https://discord.gg/AqqyqFat to post your Ideas on the Improvements chanel
